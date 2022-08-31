@@ -17,6 +17,8 @@ Bitte bitte trefft keine Absprachen zu, z.B., Marks Behandlung mit den Pflegern 
 ## Anfahrt
 Die Einrichtung ist 15 Minuten zu Fuß vom Bahnhof entfernt und befindet sich im Kommunardenweg 14, 15232 Frankfurt (Oder).
 
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2438.1339522954177!2d14.539018016154728!3d52.33171597977902!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x470798103d11be6f%3A0x9f91797574575fa5!2sKommunardenweg%2014%2C%2015232%20Frankfurt%20(Oder)!5e0!3m2!1sde!2sde!4v1661973758437!5m2!1sde!2sde" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+  
 ## Infos zu Mark
 Zu aller erst: Mark ist stabil, sollte seine Atmung kurz aussetzen, er sich verschlucken, erschrecken, röcheln oder stöhnen ist das alles schon vorgekommen - keine Panik. Bei einem Krampf hilft es ihm zu entspannen, wenn ihr ihm die Handfläche auf die Stirn legt.
 
