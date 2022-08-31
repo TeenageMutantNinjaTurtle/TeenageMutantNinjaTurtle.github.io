@@ -2,13 +2,13 @@
 
 Hallo liebe Freunde und Familie,
 
-Mark hat sich mittlerweile gut in der Einrichtung in Frankfurt (Oder) eingelebt und kann im Grunde jederzeit besucht werden. Damit ihr auch ohne Absprache mit uns hingehen könnt tragt euch bitte in [diesen Kalender](https://kalender.digital/7aaa78e841aa42ec0aee) ein. Dafür klickt ihr auf den Tag an dem ihr vorbeikommen wollt, tragt euren Namen in den Titel ein und drückt auf Speichern.
-Unter der Woche ist ab 14 Uhr am besten damit ihr nicht ankommt und Mark gerade eine Therapie hat. Am Wochenende könnt ihr jederzeit vorbeikommen. Beachtet bitte, dass vor Ort ein Corona-Test durchgeführt wird. In der Regel könnt ihr eure Maske bei Mark dann absetzen, damit er euch besser erkennen kann.
+Mark hat sich mittlerweile gut in der Einrichtung in Frankfurt (Oder) eingelebt und kann im Grunde jederzeit besucht werden. Damit ihr auch ohne Absprache mit uns hingehen könnt, tragt euch bitte in [diesen Kalender](https://kalender.digital/7aaa78e841aa42ec0aee) ein. Dafür klickt ihr auf den Tag an dem ihr vorbeikommen wollt, tragt euren Namen in den Titel ein und drückt auf Speichern.
+Unter der Woche ist ab 14 Uhr am besten, damit ihr nicht ankommt und Mark gerade eine Therapie hat. Am Wochenende könnt ihr jederzeit vorbeikommen. Beachtet bitte, dass vor Ort ein Corona-Test durchgeführt wird. In der Regel könnt ihr eure Maske aber bei Mark dann absetzen, damit er euch besser erkennen kann.
 
 ## Kontakt
 Ihr erreicht die Pfleger unter +49 (0) 335 387283213
 
-Wenn ihr mit Mark rausgehen wollt könnt ihr vormittags anrufen und fragen, ob sie ihn bitte in den Rollstuhl setzen können.
+Wenn ihr mit Mark rausgehen wollt solltet ihr Vormittags anrufen und fragen, ob sie ihn bitte in den Rollstuhl setzen können.
 
 (Sagt einfach ihr seid Freunde/Familie von Mark Bloße, wolltet mit ihm rausgehen und fragt ob er in den Rollstuhl gesetzt werden kann)
 
@@ -17,11 +17,11 @@ Bitte bitte trefft keine Absprachen zu, z.B., Marks Behandlung mit den Pflegern 
 ## Anfahrt
 Die Einrichtung ist 15 Minuten zu Fuß vom Bahnhof entfernt und befindet sich im [Kommunardenweg 14, 15232 Frankfurt (Oder)](https://goo.gl/maps/G9qzFc5rmTh8WXWc8).
 
-Vor Ort gibt es mehrere Eingänge am besten ihr nehmt den im Foto abgebildeten und drückt an der Klingel auf JKB. Euch wird die Tür geöffnet und eine Pfleger\*in kommt vorbei um euch zu testen. Falls ihr noch nie da wart können sie euch auch zu Marks Zimmer in den unteren Stock bringen.
+Vor Ort gibt es mehrere Eingänge, am besten ihr nehmt den im Foto abgebildeten und drückt an der Klingel auf JKB. Euch wird die Tür geöffnet und eine Pfleger\*in kommt vorbei um euch zu testen. Falls ihr noch nie da wart können sie euch auch zu Marks Zimmer in den unteren Stock bringen.
 
-![Eingang](https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-02.jpg | width=40)
+<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-02.jpg?raw=true width=179px height=240px>
 
-![Klingel](https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-05.jpg | width=40)
+<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-05.jpg?raw=true width=179px height=240px>
   
 ## Infos zu Mark
 Zu aller erst: Mark ist stabil, sollte seine Atmung kurz aussetzen, er sich verschlucken, erschrecken, röcheln oder stöhnen ist das alles schon vorgekommen - keine Panik. Bei einem Krampf hilft es ihm zu entspannen, wenn ihr ihm die Handfläche auf die Stirn legt.
