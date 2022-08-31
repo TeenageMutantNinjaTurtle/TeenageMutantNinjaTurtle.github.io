@@ -3,7 +3,7 @@
 Hallo liebe Freunde und Familie,
 
 Mark hat sich mittlerweile gut in der Einrichtung in Frankfurt (Oder) eingelebt und kann im Grunde jederzeit besucht werden. Damit ihr auch ohne Absprache mit uns hingehen könnt, tragt euch bitte in [diesen Kalender](https://kalender.digital/7aaa78e841aa42ec0aee) ein. Dafür klickt ihr auf den Tag an dem ihr vorbeikommen wollt, tragt euren Namen in den Titel ein und drückt auf Speichern.
-Unter der Woche ist ab 14 Uhr am besten, damit ihr nicht ankommt und Mark gerade eine Therapie hat. Am Wochenende könnt ihr jederzeit vorbeikommen. Beachtet bitte, dass vor Ort ein Corona-Test durchgeführt wird. In der Regel könnt ihr eure Maske aber bei Mark dann absetzen, damit er euch besser erkennen kann.
+Unter der Woche ist ab 14 Uhr am besten, damit ihr nicht ankommt und Mark gerade eine Therapie hat. Am Wochenende könnt ihr jederzeit vorbeikommen. Beachtet bitte, dass vor Ort ein Corona-Test durchgeführt wird (Update: Aktuell sind keine Tests notwendig). In der Regel könnt ihr eure Maske aber bei Mark dann absetzen, damit er euch besser erkennen kann.
 
 ## Kontakt
 Ihr erreicht die Pfleger unter +49 (0) 335 387283213
