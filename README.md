@@ -19,9 +19,9 @@ Die Einrichtung ist 15 Minuten zu Fuß vom Bahnhof entfernt und befindet sich im
 
 Vor Ort gibt es mehrere Eingänge, am besten ihr nehmt den im Foto abgebildeten und drückt an der Klingel auf JKB. Euch wird die Tür geöffnet und eine Pfleger\*in kommt vorbei um euch zu testen. Falls ihr noch nie da wart können sie euch auch zu Marks Zimmer in den unteren Stock bringen.
 
-<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-02.jpg?raw=true width=179px height=240px>
+<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-02.jpg?raw=true width="179" height="240">
 
-<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-05.jpg?raw=true width=179px height=240px>
+<img source=https://github.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/photo_2022-08-31_21-41-05.jpg?raw=true width="179" height="240">
   
 ## Infos zu Mark
 Zu aller erst: Mark ist stabil, sollte seine Atmung kurz aussetzen, er sich verschlucken, erschrecken, röcheln oder stöhnen ist das alles schon vorgekommen - keine Panik. Bei einem Krampf hilft es ihm zu entspannen, wenn ihr ihm die Handfläche auf die Stirn legt.
