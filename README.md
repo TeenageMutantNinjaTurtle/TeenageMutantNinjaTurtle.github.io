@@ -24,4 +24,4 @@ Wir versuchen gerade einen Ja-Nein-Code mit blinzeln zu entwickeln: 1-mal blinze
 
 Körperlich ist bei Mark alles in Ordnung: Je nach Tageslaune könnt ihr ihm die Hände schütteln, seine Arme bewegen, den Kopf drehen und ihm z.B. über die Wange streicheln. Wenn er im Rollstuhl sitzt könnt ihr mit ihm rausgehen. Sollte die Sonne scheinen setzt ihm eines der Caps aus dem Schrank auf und achtet darauf seine Augen vor der Sonne zu schützen, sonst schaut Mark da einfach gerne mal rein.
 
-Wenn ihr euch zu ihm setzen wollt haben wir in seinem Zimmer einen schwarzen Rollhocker hinter der Tür den ihr gern benutzen könnt um nicht die ganze Zeit stehen zu müssen. Wenn ihr geht macht ihm gerne eine CD ins Radio oder den Fernseher an.
+Wenn ihr euch zu ihm setzen wollt haben wir in seinem Zimmer einen schwarzen Rollhocker hinter der Tür den ihr gern benutzen könnt um nicht die ganze Zeit stehen zu müssen. Wenn ihr geht macht ihm gerne eine CD ins Radio oder den Fernseher an. Im großen Kleiderschrank ist neben Marks Klamotten auch ein kleines Besuchertagebuch mit Stift - wir würden uns freuen wenn ihr paar Worte für Mark da lasst.
