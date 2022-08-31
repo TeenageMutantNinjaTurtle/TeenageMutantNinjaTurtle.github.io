@@ -6,8 +6,12 @@ Mark hat sich mittlerweile gut in der Einrichtung in Frankfurt (Oder) eingelebt 
 Unter der Woche ist ab 14 Uhr am besten damit ihr nicht ankommt und Mark gerade eine Therapie hat. Am Wochenende könnt ihr jederzeit vorbeikommen. Beachtet bitte, dass vor Ort ein Corona-Test durchgeführt wird. In der Regel könnt ihr eure Maske bei Mark dann absetzen, damit er euch besser erkennen kann.
 
 ## Kontakt
-Ihr erreicht die Pfleger unter +49 (0) 335 387283213 
-Wenn ihr mit Mark rausgehen wollt könnt ihr vormittags anrufen und fragen, ob sie ihn bitte in den Rollstuhl setzen können (Sagt einfach ihr seid Freunde/Familie von Mark Bloße, wolltet mit ihm rausgehen und fragt ob er in den Rollstuhl gesetzt werden kann)
+Ihr erreicht die Pfleger unter +49 (0) 335 387283213
+
+Wenn ihr mit Mark rausgehen wollt könnt ihr vormittags anrufen und fragen, ob sie ihn bitte in den Rollstuhl setzen können.
+
+(Sagt einfach ihr seid Freunde/Familie von Mark Bloße, wolltet mit ihm rausgehen und fragt ob er in den Rollstuhl gesetzt werden kann)
+
 Bitte bitte trefft keine Absprachen zu, z.B., Marks Behandlung mit den Pflegern über unsere Köpfe hinweg.
 
 ## Anfahrt
