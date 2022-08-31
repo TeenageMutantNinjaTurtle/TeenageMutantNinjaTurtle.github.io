@@ -21,7 +21,7 @@ Vor Ort gibt es mehrere Eingänge, am besten ihr nehmt den im Foto abgebildeten 
 <p align="middle">
 <img src="https://raw.githubusercontent.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/main/docs/assets/images/photo_2022-08-31_21-41-02.jpg" width="270">
 
-<img src="https://raw.githubusercontent.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/blob/main/docs/assets/images/photo_2022-08-31_21-41-05.jpg"  width="270">
+<img src="https://raw.githubusercontent.com/TeenageMutantNinjaTurtle/TeenageMutantNinjaTurtle.github.io/main/docs/assets/images/photo_2022-08-31_21-41-05.jpg"  width="270">
 </p>
 ## Infos zu Mark
 Zu aller erst: Mark ist stabil, sollte seine Atmung kurz aussetzen, er sich verschlucken, erschrecken, röcheln oder stöhnen ist das alles schon vorgekommen - keine Panik. Bei einem Krampf hilft es ihm zu entspannen, wenn ihr ihm die Handfläche auf die Stirn legt.
