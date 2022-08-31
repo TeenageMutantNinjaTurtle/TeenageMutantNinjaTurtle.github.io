@@ -18,11 +18,11 @@ Bitte bitte trefft keine Absprachen zu, z.B., Marks Behandlung mit den Pflegern 
 Die Einrichtung ist 15 Minuten zu Fuß vom Bahnhof entfernt und befindet sich im [Kommunardenweg 14, 15232 Frankfurt (Oder)](https://goo.gl/maps/G9qzFc5rmTh8WXWc8).
 
 Vor Ort gibt es mehrere Eingänge, am besten ihr nehmt den im Foto abgebildeten und drückt an der Klingel auf JKB. Euch wird die Tür geöffnet und eine Pfleger\*in kommt vorbei um euch zu testen. Falls ihr noch nie da wart können sie euch auch zu Marks Zimmer in den unteren Stock bringen.
+<p align="middle">
+<img src=docs/assets/images/photo_2022-08-31_21-41-02.jpg width="270">
 
-<img src=docs/assets/images/photo_2022-08-31_21-41-02.jpg>
-
-<img src=docs/assets/images/photo_2022-08-31_21-41-05.jpg>
-  
+<img src=docs/assets/images/photo_2022-08-31_21-41-05.jpg width="270">
+</p>
 ## Infos zu Mark
 Zu aller erst: Mark ist stabil, sollte seine Atmung kurz aussetzen, er sich verschlucken, erschrecken, röcheln oder stöhnen ist das alles schon vorgekommen - keine Panik. Bei einem Krampf hilft es ihm zu entspannen, wenn ihr ihm die Handfläche auf die Stirn legt.
 
